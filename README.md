@@ -4,13 +4,13 @@ Download the full manuscript: [PDF](Uniphics_Book_Manuscript_v1.1_November_04.pd
 
 # uniphics-toe
 
-Uniphics: The Theory of Everything — Manuscript and Resources
+Uniphics: The Theory of Everything© — Manuscript and Resources
 
 By Paul Joseph Maley (October 27, 2025)
 
 *Dedicated to my loves Jennii and Rana*
 
-## Download the Full Manuscript
+## Download Chapter 1 of Uniphics: The Theory of Everything©
 [a href="Uniphics_Book_Manuscript_v1.1_November_04.pdf"]Download v1.1 PDF (240 pages)[/a]
 
 ## Key Predictions
