@@ -9,6 +9,7 @@ By Paul Joseph Maley (October 27, 2025)
 ## Download Chapter 1 of Uniphics: The Theory of Everything©
 [a href="Chapter_1_Uniphics_Book_Manuscript_November_9.pdf"]Download Chapter 1 PDF (11 pages)[/a]
 [a href="Uniphics_Chapters_6_and_9_for_ViXar%20(1).pdf"]Download Chapters 6 & 9 PDF (42 pages)[/a]
+[a href="Uniphics_Book_Chapter_8.pdf"]Download Chapter 1 PDF (11 pages)[/a]
 
 ## Key Predictions
 | Phenomenon | Uniphics | Observed | Source |
