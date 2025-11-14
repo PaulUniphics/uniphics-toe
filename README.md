@@ -1,8 +1,4 @@
 # uniphics-toe
-Uniphics: The Theory of Everything — Manuscript and Resources
-Download the full manuscript: [PDF](Chapter_1_Uniphics_Book_Manuscript_November_9.pdf).
-
-# uniphics-toe
 
 Uniphics: The Theory of Everything© — Manuscript and Resources
 
